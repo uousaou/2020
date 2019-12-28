@@ -1,6 +1,9 @@
-README
+README - README
 
-Uousaou's Home Page
-https://uousaou.github.io/2020
+NEW YEAR 2020 !
 
-Open Souce
+JUMP TO → https://uousaou.github.io/2020
+
+Have nice year!
+
+created by UOUSAOU
